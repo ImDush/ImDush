@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ImDush
-- 👀 I’m interested in Graohic Design, Video Editing, Web Developing etc..
+- 👀 I’m interested in Graohic Design, Video Editing, Web Development etc..
 - 🌱 I’m currently learning Programming
 - 💞️ I’m looking to collaborate on you 
 - 📫 How to reach me Facebook | Youtube | Instagram | TikTok
